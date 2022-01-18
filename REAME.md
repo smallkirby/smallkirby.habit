@@ -1,0 +1,3 @@
+# smallkirby.habit
+
+EVERYTHING ABOUT SMALLKIRBY.
